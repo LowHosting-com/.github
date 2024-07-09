@@ -1,1 +1,1 @@
-https://lowhosting.org/
+https://lowhosting.com/
